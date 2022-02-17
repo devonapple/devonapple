@@ -1,6 +1,6 @@
 I’m @devonapple!
 
-I’m a technical writer with experience in the healthcare and finance industries, looking for work in the computer and software industry.
+I’m a technical writer with documentation experience in the healthcare and finance industries, looking to move into documentation full-time.
 
 I’m interested in comedy, science fiction, role-playing games, and Fallout. I've written and delivered live-action role-playing games for over 20 years.
 
